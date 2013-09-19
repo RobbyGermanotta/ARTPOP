@@ -1,0 +1,4 @@
+ARTPOP
+======
+
+We Love Gaga
